@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Star!
+- 👀 I’m interested in ... art/ animation/ and over all being creative
+- 🌱 I’m currently learning ... coding ("beginers" in a way??
+- 💞️ I’m looking to collaborate on ... Roblox game!
+- 📫 How to reach me ... (not yet)
+- 😄 Pronouns: ... She/Her
+- ⚡ Fun fact: ... I love vintige things!
